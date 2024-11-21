@@ -1340,6 +1340,27 @@ or you can use dork for spesific example
 - [toolzu](https://toolzu.com/)
 - [pathsocial](https://www.pathsocial.com/id/)
 - [export comment Insta](https://exportgram.net/)
+[Instagram Video Downloader](http://instaclip.app)
+
+[Download instagram videos](http://instaclip.app)
+
+[instagram video downloader](http://instaclip.app)
+
+[instagram video download](http://instaclip.app)
+
+[instagram download video](http://instaclip.app)
+
+[Download instagram video](http://instaclip.app)
+
+[instagram photo downloader](http://instaclip.app)
+
+[Instagram Video Download](http://instaclip.app)
+
+[instaclip](http://instaclip.app)
+
+[download instagram video](http://instaclip.app)
+
+[download video instagram](http://instaclip.app)
 
 # Microsoft OneDrive 
 
